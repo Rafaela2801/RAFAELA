@@ -4,4 +4,4 @@ ESTOU DESENVOLVENDO NA LINGUAGEM JAVASCRIPT
 UTILIZO ESSE ESPAÇO PARA MINHA ORGANIZAÇÃO E COMPARTILHAMENTO DO MEU PROJETOS DESENVOLVIDOS
 
 ![](https://giffiles.alphacoders.com/195/195450.gif)
-![](https://gifdb.com/gif/cute-twerk-dance-chibi-satoru-gojo-m1ot0dqq48azmgzz.html)
+
