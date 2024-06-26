@@ -3,5 +3,5 @@ ESTOU ESTUDANDO NA ALURA
 ESTOU DESENVOLVENDO NA LINGUAGEM JAVASCRIPT
 UTILIZO ESSE ESPAÇO PARA MINHA ORGANIZAÇÃO E COMPARTILHAMENTO DO MEU PROJETOS DESENVOLVIDOS
 
-![](https://gifs.alphacoders.com/gifs/view/195623)
+![](https://pupilasembrasas.com.br/wp-content/uploads/2016/08/ajin-3.gif)
 
