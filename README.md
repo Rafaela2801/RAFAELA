@@ -3,5 +3,5 @@ ESTOU ESTUDANDO NA ALURA
 ESTOU DESENVOLVENDO NA LINGUAGEM JAVASCRIPT
 UTILIZO ESSE ESPAÇO PARA MINHA ORGANIZAÇÃO E COMPARTILHAMENTO DO MEU PROJETOS DESENVOLVIDOS
 
-![](https://giffiles.alphacoders.com/195/195450.gif)
+![](https://itadakimasuanimes.wordpress.com/2019/06/11/comentando-o-volume-176-ajin-12)
 
